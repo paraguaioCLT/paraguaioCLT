@@ -10,6 +10,6 @@ Meu nome é paraguaioCLT
 
 ## Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+agb990br@gmail.com
 
-@alurastartestudante
+![](https://media1.tenor.com/m/z1MHq4-Yep8AAAAd/shrek-smirk.gif)
